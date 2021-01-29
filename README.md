@@ -27,4 +27,4 @@ wsajfbeawuifh.
 >> GYYGYGGGJK
 >> ttyftyftfyj
 
-[Google](www.google.com)
+[Google](https://www.google.com)
